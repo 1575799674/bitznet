@@ -1,6 +1,6 @@
 # Bitz Net官网地址
 
-最新地址：[bitzconnect.com](https://red.bnaffred.com/#/register?code=n1fs4toV)
+2026最新地址：[webitz.net](https://red.bnaffred.com/#/register?code=n1fs4toV)
 
 ## 简介
 
@@ -15,6 +15,7 @@ Bitz Net对下列国家和地区的所有线路支持流媒体解锁：美国、
 此前我们承诺，将会在合适的时候做出补偿。为了表示歉意，Bitz Net 现提供 75 折的优惠码： 2025DOWN75
 
 有效期至 2025 年 8 月 30 日，感谢您一直以来的支持与信任。
+另外有六折优惠码出售 详情可以访问 [闲鱼](https://m.tb.cn/h.jacIeH5?tk=kKzYTJwARcN CZ193 )进行咨询
 
 ## 特色
 
